@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Keng
-- 🧠 My head going Dying
+- My head going Dying
 
 
 <!---
